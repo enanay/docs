@@ -33,6 +33,7 @@ If You do not accept Our Cookies, You may experience some inconvenience in your 
 ## Contact Us
 If you have any questions about this Cookies Policy, You can contact us:\
 By email: info@innovaris.com.ph
+By mobile: 0917 854 8929
 <br/>
 <br/>
 <br/>
