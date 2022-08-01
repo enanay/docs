@@ -57,6 +57,7 @@ You agree to irrevocably submit all disputes related to Terms or the relationshi
 ## Contact Us
 If you have any questions about this Terms of Service, You can contact us:\
 By email: info@innovaris.com.ph
+By mobile: 0917 854 8929
 <br/>
 <br/>
 <br/>
