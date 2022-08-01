@@ -98,6 +98,7 @@ We may update Our Privacy Policy from time to time. We will notify You of any ch
 Contact Us
 If you have any questions about this Privacy Policy, You can contact us:\
 By email: info@innovaris.com.ph
+By mobile: 0917 854 8929
 <br/>
 <br/>
 <br/>
